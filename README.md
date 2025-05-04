@@ -1,4 +1,4 @@
-### Hello There I'm Gideon 👋🏽👋🏽:
+### Hello There 👋🏽👋🏽, I'm Gideon 😊 :
 Pharmacist 👨🏽‍⚕️ and Software Developer 🧑🏽‍💻 sharing my journey in tech<br>🧑🏽‍🎓 Studied Doctor of Pharmacy in Kwame Nkrumah University of Science and Technology<br>🧑🏽‍💻 I'm a self taught Software Developer<br>
 
 
